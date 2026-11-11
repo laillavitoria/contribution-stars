@@ -1,2 +1,2 @@
-# contribuition stars
+# contribution stars
 
